@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **umeshakavindikv@gmail.com**
 
-- ⚡ Fun fact **I think I love more than Songs**
+- ⚡ Fun fact **I think I love more than Music**
 
 
 <td width="50%" align="center">
